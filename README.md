@@ -2,9 +2,9 @@
 -  i love guns
 -  dni if annyoing
 -  Pronouns: they /them 
--  Fun fact: im awesome 
+- 𝐟𝐫𝐞𝐞 𝐭𝐨 𝐢𝐧𝐭 
+-   Fun fact I'm awesome sauce
 
-<!---
-wastedguns/wastedguns is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+"*i dont find it funny right now*
+*not so good with the money Right now..*
+*im on my way to the party right now* >_<"
