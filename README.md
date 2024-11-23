@@ -1,7 +1,8 @@
 -  Hi, I’m @wastedguns/lai sal
--  i love guns
+-  i love guns🎱
 -  dni if annyoing
--  Pronouns: they /them 
+-  Pronouns: they /them 🦈
+
 - 𝐟𝐫𝐞𝐞 𝐭𝐨 𝐢𝐧𝐭 
 -   Fun fact I'm awesome sauce
 
