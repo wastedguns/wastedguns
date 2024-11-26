@@ -4,7 +4,7 @@
 -  Pronouns: they /them 🦈
 
 - 𝐟𝐫𝐞𝐞 𝐭𝐨 𝐢𝐧𝐭 
--   Fun fact I'm awesome sauce
+-   **Fun fact I'm awesome sauce**
 
 "*i dont find it funny right now*
 *not so good with the money Right now..*
