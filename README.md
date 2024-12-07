@@ -1,11 +1,1 @@
--  Hi, I’m @wastedguns/lai sal
--  i love guns🎱
--  dni if annyoing
--  Pronouns: they /them 🦈
-
-- 𝐟𝐫𝐞𝐞 𝐭𝐨 𝐢𝐧𝐭 
--   **Fun fact I'm awesome sauce**
-
-"*i dont find it funny right now*
-*not so good with the money Right now..*
-*im on my way to the party right now* >_<"
+![hello!](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.vg247.com%2Fhonkai-star-rail-2-1-banners-acheron-aventurine-gallagher&psig=AOvVaw2e1lAHwncHlSKyXmPqrkZ5&ust=1733700114717000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCIDE063mlooDFQAAAAAdAAAAABAK)
